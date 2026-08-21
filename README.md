@@ -1,2 +1,1 @@
-# jxk.github.io
-Junction X Korea 2026
+# Junction X Korea 2026
